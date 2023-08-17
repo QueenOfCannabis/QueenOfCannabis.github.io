@@ -8,28 +8,32 @@ We are QueenOfCannabis
 You can reach us via
 
 Telegram: @QueenOfCannabis420
-e-mail: QueenofCannabis420@pm.me
+
+e-mail: QueenofCannabis420@pm.me 
+
 Marketplaces: Archetyp, Incognito, Nemesis, Bohemia, Cannabia, Abacus, Kingdom
 
 Website and more contact possibilities will follow soon
 
-Thank you for verifying! Have a wonderful day! ´
+Thank you for verifying! Have a wonderful day! 
+
 -----BEGIN PGP SIGNATURE-----
 
-iQIzBAEBCgAdFiEEW93zEgQyxntNpSL3yiY9jbNxq6cFAmTeCsgACgkQyiY9jbNx
-q6dJDQ/9HWay4Fq2QzgJ6usGehRSb7xvLvfLFXrT6TegCkuZTy1q+xXCQ6jsnWOR
-NxbUH4fZ1WGabu3Cqceb9SlUxWGB72TMDnBbgHHAISLDEB0XafiFIeIqs9hVQTKh
-IEFsE8fw7v6liSh/JjnOYIc9OP4kbUN1RoNh3m57DP6czJT4IQyT3zDeMkjfYpT2
-2sW0/Grsd3CGygwLawxBTlT0N9Tm9NbKLbiqefn7Iu3unlu0ABLaB3gaGkQfXFT7
-VTnASX8fltI7T8e9LhpIk/XYC/3IuyWsAWPnAdhv3bmqG1eIyy7CJui38KQrGjP4
-PA+LV+exIcZK+T8IjPy+I/cDFi8cOSNWp2oJO+ERqkFmd5arkw1Yf2JLeDMOcsY0
-4ZjoqU3WbYSEZMoU4blGyzR9PKkhS2iE4pDscIBwWlJiGJ3p5HVisr/9gCnFPqax
-fwpEyNmwhpWNoXrM7mKx8O6vCf3q4dOj+ikvi8QtBT0G+GzJDe/L67XWT0qKMEE4
-HUK6vwQJ3cBQrZB7pIm2/SkzD73PS8qn/eij/H0M6JDtk7MNdQcVvsRn3mrK8ZoF
-xKB3i3Ovmi7NmJayrwyqjZvjt+x5ygiYQJd0N/6ZStNtk7Bxt7wTP6i95lbk9b8d
-O745hHo4BgZsPce4D60bXvz+PnGIIKofY9skSNKYvYBdYHIYs5I=
-=HPaS
+iQIzBAEBCgAdFiEEW93zEgQyxntNpSL3yiY9jbNxq6cFAmTeEFAACgkQyiY9jbNx
+q6f8gRAAmn7kQLJuaUCFN+gjXeh5inx7U/FVHy6tEHyWaxwhDBP/zsyUVGvif9HY
+a0sbjXBeTqdwG7pOygEbMUnav0EDtM9o8wOsQazrzlvqG2iMjBfka8L99D4yOiEI
+fU1qilvWkYxbHyu8MzpFT9uKwykYxg8AA9GonFCWcdjbPS3o325/mRP5e0ZXPs0T
+X/8k4iSvWXMG2qrOQA9UzXe696cIPxDjrUfh8JBhwCxuQMuebf32xBkk/WoDbZ8P
+el0cErHklFcFSkatonUrxhNRqgfsFQNB5WY+/fpi4rpoLYBbQpNVLCAFUgTmHzSe
+1ZeolzO+s7hcf5KoYhK+E72rH2pz5GBFlXvAtTSfeGGZCpgvRVE+2As08WGe8aY5
+HVA5Ls9YR2exD7qOs88rXeNHDjmtAbIK2SLlcmSOK+jwEaeBuBUxc64NztrllcXb
+puBvhH1l1tHppINF/ZGaGf6OA3ia+51VhX4tHmTl4oG9W3AS9wa8GYQmM5n7k73R
+16wZRLDWKw6fHAhdhxHVwYYp/Hl5qh7+Piu+BqL+eTSTXycB+1/Awis4z+VUMHc9
+85DrpL/T+pZVD1jahPB/IOlOsli6rYYEAjVSlr9TSxujkYLsF2TJqDDwRkxuOJaD
+F0RR/2v9U3hAuhG6y7bBqg6snOVMln1ezo0oFdyydZesdnzOTi8=
+=OALV
 -----END PGP SIGNATURE-----
+
 
 
 OUR PUBlIC PGP KEY:
